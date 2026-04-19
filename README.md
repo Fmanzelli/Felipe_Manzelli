@@ -63,7 +63,8 @@ Sou apaixonado por tecnologia e estou constantemente evoluindo através de proje
 
 🚧 Em construção... (em breve projetos completos aqui)
 
-👉 Dica: fixe seus melhores projetos no perfil!
+👉 Dica: Projeto-Receita-certa
+
 
 ---
 
