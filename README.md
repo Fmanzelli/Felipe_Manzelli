@@ -95,7 +95,7 @@ Conquistar minha primeira oportunidade como Desenvolvedor Full Stack Júnior e c
 
 ## ⚡ Curiosidade
 
-Aprendo melhor colocando a mão no código — testando, errando e evoluindo todos os dias 🚀
+Aprendo melhor colocando a mão no código testando, errando e evoluindo todos os dias 🚀
 
 ---
 
